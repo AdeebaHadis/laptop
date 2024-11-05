@@ -1,1 +1,1 @@
-Laptop Ai Assisstant
+Laptop AI Assistant
